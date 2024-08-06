@@ -2,7 +2,7 @@
 - 👀 I’m interested in hacking
 - 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me luoqiuheng2011@proton.me
+- 📫 How to reach me lqh2011@protonmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
